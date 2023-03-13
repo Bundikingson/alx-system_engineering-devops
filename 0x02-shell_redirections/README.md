@@ -1,1 +1,1 @@
-Shell, I/O Redirections and filters
+ A gif is worth ten thousand words 
