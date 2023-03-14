@@ -1,1 +1,1 @@
-Every addition to true knowledge is an addition to human power
+There are 10 types of people in the world -- Those who understand binary, and those who don't
